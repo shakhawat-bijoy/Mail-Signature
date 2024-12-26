@@ -1,0 +1,1 @@
+<img src="https://i.ibb.co.com/vDY7K92/email-signature.png" alt="email-signature" border="0">
